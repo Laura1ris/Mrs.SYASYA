@@ -71,5 +71,8 @@ Others:
 Order can be made via phone/chatbot (or coming to place)
 Do not accept any form of cash
 
-Other products:
-Candle fregrance (180RM for each candle)
+Body Mist and Body Fregrance:
+Strawberry - 90RM (110ML)
+Vanilla Pumkin - 90RM (110ML)
+Lychee Creamy - 90RM (110ML)
+Flora - 90RM (110ML)
